@@ -1,0 +1,1 @@
+O Default deu drop como sempre, sem skin, sem mochila rara, apenas com a picareta simples e a confiança de quem já sobreviveu a muitas partidas.
