@@ -2,7 +2,7 @@ Fortnite é um jogo online muito popular que mistura ação, estratégia e criat
 
 O Default do Fortnite começou como um jogador simples, sem skins chamativas, mas rapidamente mostrou que habilidade e estratégia valem mais que aparência; construindo rápido, coletando recursos e sobrevivendo a cada batalha, ele provou que até um personagem “padrão” podia se tornar uma verdadeira lenda no Battle Royale.
 
-O Default deu drop do bus como sempre, sem skin, sem mochila rara, apenas com a picareta simples e a confiança de quem já sobreviveu a muitas partidas.Enquanto outros jogadores disputavam armas lendárias, ele pousou em um lugar esquecido do mapa, onde o silêncio era quebrado apenas pelo som distante de tiros. 
+O Default deu drop do bus como sempre em Jardim das Flores, sem skin, sem mochila rara, com a picareta de flor e as suas ferramentas de florista simples e a confiança de quem já sobreviveu a muitas partidas.Enquanto outros jogadores disputavam armas lendárias, ele pousou em um lugar esquecido do mapa, onde o silêncio era quebrado apenas pelo som distante de tiros. 
 
 Em conclusão, Fortnite marcou uma geração ao unir diversão, competição e criatividade em um só jogo. 
 
